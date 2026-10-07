@@ -1,0 +1,1 @@
+# Screaming-Frog-2026
